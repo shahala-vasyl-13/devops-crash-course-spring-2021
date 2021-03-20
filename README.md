@@ -1,4 +1,16 @@
 # devops-crash-course-spring-2021
+
+
+
+Amid the spreading plain,
+
+
+
+
+
+
+
+
 The blood of foes ... then will I leave
 
 So that the fields, the boundless steppes,
