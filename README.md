@@ -21,3 +21,5 @@ And break your heavy chains
 And water with the tyrants' blood
 The freedom you have gained.
 У синєє море
+
+So that the fields, the boundless steppes,
