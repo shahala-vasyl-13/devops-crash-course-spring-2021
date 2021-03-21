@@ -10,17 +10,17 @@ Amid the spreading plain,
 
 22222222222222222222222222222222222222222222222222222222
 
-Into the deep blue sea
-The blood of foes ... then will I leave
-33333333333333333333333333333333333333333333333333333333
-I'll leave them all and fly away
-So that the fields, the boundless steppes,
-And then I'll pray .... But until that day
-##The **freedom** you have gained.
-##444444444444444444444444444444444444444444444444444444444
-Oh bury me, then rise ye up
-And break your heavy chains
-And water with the tyrants' blood
+Into the deep blue sea  
+The blood of foes ... then will I leave  
+33333333333333333333333333333333333333333333333333333333  
+16 – I'll leave them all and fly away  
+So that the fields, the boundless steppes,  
+And then I'll pray .... But until that day  
+##The **freedom** you have gained.  
+##444444444444444444444444444444444444444444444444444444444  
+Oh bury me, then rise ye up  
+And break your heavy chains  
+And water with the tyrants' blood  
 The freedom you have gained.
 Як понесе з України
 У синєє море
