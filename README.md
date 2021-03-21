@@ -1,5 +1,5 @@
 ﻿# devops-crash-course-spring-2021
-When I am dead, bury me
+When I аm dеаd, bury  mе
 
 
 Amid the spreading plain,
