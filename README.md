@@ -13,6 +13,7 @@ Amid the spreading plain,
 Into the deep blue sea
 The blood of foes ... then will I leave
 33333333333333333333333333333333333333333333333333333333
+I'll leave them all and fly away
 So that the fields, the boundless steppes,
 And then I'll pray .... But until that day
 ##The **freedom** you have gained.
